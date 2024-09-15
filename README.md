@@ -1,6 +1,6 @@
 - Opa devs, tudo bem,me chamo Logan.
 - No primeiro momento o interesse e demostrar meus primeiros projetos.
-- E continuar nesse apredizado vasto que e a TI
+- E continuar com aprendizado vasto que e area de TI
 - Espero  colaborar muito com todos voçês
 - Espero tambem que esse esforço me traga frutos
 - Me edicarei ao maximo para que aconteça
